@@ -9,7 +9,7 @@ Done By
 Abishek<br>
 agalya<br>
 aiswarya<br>
-akashya<br>
+Akshaya<br>
 amirtha<br>
 ananda kumaran<br>
 aparna
