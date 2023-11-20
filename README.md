@@ -6,12 +6,5 @@ Assigment  <br>
 Done By
 <b>Team members<b><br><b>
 <i>Abilash<br>
-Abishek<br>
-agalya<br>
-aiswarya<br>
-Akshaya<br>
-amirtha<br>
-ananda kumaran<br>
-aparna
 
 
